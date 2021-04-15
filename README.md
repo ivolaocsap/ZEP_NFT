@@ -1,4 +1,4 @@
 # ZEP NFT
 Zeppelin DAO NFT factory. Done with love from one of the members of the community 
-# Zepplin Dao
-will never stop surprizing it's loyal community and the community is here for them also helping with everything they can with love we will get there <3
+# Community helps
+Zepplin Dao will never stop surprizing it's loyal community and the community is here for them also helping with everything they can with love we will get there <3
